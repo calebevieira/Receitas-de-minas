@@ -1,1 +1,1 @@
-# Receitas-de-minas
+# Receitas de minas professor Diego Augusto
